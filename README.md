@@ -1,3 +1,0 @@
-# JhiNResH_WBA-Q423
-# JhiNResH_WBA-Q423
-# JhiNresH-Q423-WBA
