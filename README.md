@@ -1,1 +1,1 @@
-# JhiNResH_WBA-Q423
+# JhiNResH-SOL-Q423
